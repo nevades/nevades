@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **nevanjithdes@gmail.com**
 
-- ⚡ Fun fact **I'm the funniest guy I know**
+- ⚡ Fun fact : **I'm the funniest guy I know**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
